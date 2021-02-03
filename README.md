@@ -1,1 +1,0 @@
-# welfare-killer-contracts
